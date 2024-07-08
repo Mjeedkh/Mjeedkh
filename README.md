@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Mjeedkh
+- 👀 I’m interested in financial strategies, data analysis, and exploring ways to mitigate currency exchange losses.
+- 🌱 I’m currently learning advanced financial planning and data analysis using Python.
+- 💞️ I’m looking to collaborate on financial analysis projects, data science initiatives, and real estate investment opportunities.
+- 📫 How to reach me: mjeedkh22@gmail.com, +218 918013637, +201129724355, +249119840096
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have a goal to reach a net worth of one million dollars before the age of 30!
